@@ -1,0 +1,9 @@
+Ordenanza Nº6559/2017
+Ordenanza Nº 6559/2017
+Saavedra, 14/03/2017
+CORRESPONDE A EXPTE Nº 86.006/2017 -
+VISTO
+El Convenio entre la Dirección Provincial del Registro de la Propiedad y la Municipalidad de Saavedra Pigüé
+EL HONORABLE CONCEJO DELIBERANTE EN SESIÓN DE LA FECHA Y HACIENDO USO DE SUS FACULTADES,
+SANCIONA LA SIGUIENTE
+ORDENANZA
