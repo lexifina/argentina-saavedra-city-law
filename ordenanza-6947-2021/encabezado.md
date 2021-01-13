@@ -1,0 +1,11 @@
+Ordenanza Nº6947/2020
+Ordenanza Nº 6947/2020
+Saavedra, 16/12/2020
+2020– “Año del General Manuel Belgrano”
+CORRESPONDE A EXPTE Nº 9033/2020.-
+VISTO:
+La solicitud obrante a fs. 1, de vecino de la localidad de Pigüé y la Ordenanza Nº 6697/2018.
+EL HONORABLE CONCEJO DELIBERANTE EN SESIÓN DE LA FECHA Y HACIENDO USO DE SUS FACULTADES, SANCIONA LA SIGUIENTE
+ORDENANZA
+O R D E N A N Z A
+PARA EL PARTIDO DE SAAVEDRA
