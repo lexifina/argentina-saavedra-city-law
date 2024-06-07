@@ -1,0 +1,10 @@
+Ordenanza Nº7353
+Ordenanza Nº 7353
+Saavedra, 27/03/2024
+CORRESPONDE A EXPTE Nº 91230/2020
+VISTO:
+El decreto firmado por el señor Intendente, en favor del uso de un espacio perteneciente a este Municipio.
+ORDENANZA
+POR ELLO, EL HONORABLE CONCEJO DELIBERANTE EN SESIÓN DE LA FECHA Y HACIENDO USO DE SUS FACULTADES, SANCIONA LA SIGUIENTE
+O R D E N A N Z A
+PARA EL PARTIDO DE SAAVEDRA
