@@ -1,0 +1,10 @@
+Ordenanza Nº7399/2024
+Ordenanza Nº 7399/2024
+Saavedra, 10/07/2024
+CORRESPONDE A EXPTE Nº 94065/2022
+VISTO:
+El despacho de comisiones del Honorable Concejo Deliberante de Saavedra-Pigüé agregado a fojas 150 a 152 del presente expediente.
+POR ELLO, EL HONORABLE CONCEJO DELIBERANTE EN SESIÓN DE LA FECHA Y HACIENDO USO DE SUS FACULTADES, SANCIONA LA SIGUIENTE
+ORDENANZA
+O R D E N A N Z A
+PARA EL PARTIDO DE SAAVEDRA
